@@ -1,1 +1,0 @@
-# Album-de-figuritas-Alpha-Dx-por-Rainer
